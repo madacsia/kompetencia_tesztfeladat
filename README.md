@@ -1,0 +1,1 @@
+# kompetencia_tesztfeladat
